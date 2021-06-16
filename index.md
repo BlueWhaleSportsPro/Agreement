@@ -2,7 +2,7 @@
 
 
 ### support
-Tiger Ball Sports-must for sports fans is a learning enhancing app for sports lovers, where you can book your favorite sports activities online without queuing up. There is also a circle of enthusiasts to talk about and share experience with. Come and experience, you can contact us through the feedback in the APP if you encounter any problems in the process of using
+Tiger Ball Sports is a learning enhancing app for sports lovers, where you can book your favorite sports activities online without queuing up. There is also a circle of enthusiasts to talk about and share experience with. Come and experience, you can contact us through the feedback in the APP if you encounter any problems in the process of using
 
 
 ### Privacy policy
