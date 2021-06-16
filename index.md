@@ -1,4 +1,4 @@
-## Welcome to Tiger Ball Sports-must for sports fans
+## Welcome to Tiger Ball Sports
 
 
 ### support
